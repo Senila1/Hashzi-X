@@ -175,4 +175,4 @@ neotro-x  පිහිටුවීමෙන් ඔබ මෙම වගකීම�
 [![Find On Whatsapp ](https://img.shields.io/badge/Amazone-News03-purple.svg)](https://chat.whatsapp.com/JdNWV3viiGKGINYNrb5oy8)
 ## 👽Thanks To
 [![Yusuf Usta](https://github.com/yusufusta.png?size=50)](https://t.me/fusufs)
-[Yusuf Usta](https://t.me/fusufs)
+[Yusuf Usta](https://t.me/fusufs)8
